@@ -2,7 +2,7 @@
 - 👀 I’m interested in fnf
 - 🌱 I’m currently learning coding , composing and art
 - 💞️ I’m sigma
-- 📫 discord is hellokitty.irl
+- 📫 discord is 1cat1rat
 - 😄 Pronouns: they/them
 - ⚡ Fun fact: i am angery
 
